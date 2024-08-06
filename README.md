@@ -1,4 +1,4 @@
-# 💫 About Me:Sure, here's a fun and crazy GitHub introduction for you:
+# 💫 About Me:
 
 ---
 
